@@ -1,0 +1,2 @@
+# Pasal 17
+Dengan berlakunya Peraturan Daerah ini maka Peraturan Daerah Propinsi Daerah Tingkat I Bali Nomor 9 Tahun 1991 tentang Penjulana dan penyaluran benih/bibit Padi, palawija/dan Holtikutura dari Balai Benih Induk pada Dinas Pertanian Tanaman Pangan Propinsi Bali dan Peraturan Propinsi Daerah Tingkat I Bali Nomor 10 Tahun 1991 tentang Penjualan dan Penyaluran Bahan Tanaman dan Hasil lainya pada Dinas Perkebunan Propinsi Bali serta ketentuan lain yang mengatur sama dengan Peraturan Daerah ini dinyatakan tidak berlaku lagi.
