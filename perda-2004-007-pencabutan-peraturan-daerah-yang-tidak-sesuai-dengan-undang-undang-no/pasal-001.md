@@ -1,0 +1,37 @@
+# Pasal I
+Mencabut beberapa Peraturan Daerah sebagai berikut :
+1. Peraturan Daerah Nomor 47/PD/DPRGR/1970 tentang Seleksi dan Kastrasi / Pilihan dan Kebirian Sapi-sapi Jantan (Lembaran Daerah Tingkat I Bali Tahun 1972 Nomor 120);
+2. Peraturan Daerah Nomor 7 Tahun 1981 tentang Pembentukan, Penyatuan dan Penghapusan Desa ( Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1982 Nomor 18 Seri D Nomor 18);
+3. Peraturan Daerah Nomor 8 Tahun 1981 tentang Tata Cara Penyerahan, Pengangkatan dan Pemberhentian Kepala Desa ( Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1982 Nomor 19 Seri D Nomor 19);
+4. Peraturan Daerah Nomor 9 Tahun 1981 tentang Pembentukan Lembaga Musyawarah Desa ( Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1982 Nomor 20 Seri D Nomor 20);
+5. Peraturan Daerah Nomor 10 Tahun 1981 tentang Keputusan Desa ( Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1982 Nomor 21 Seri D Nomor 21);
+6. Peraturan Daerah Nomor 1 Tahun 1982 tentang Pembentukan, Pemecahan, Penyatuan dan Penghapusan Kelurahan (Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1982 Nomor 42 Seri D Nomor 42);
+7. Peraturan Daerah Nomor 2 Tahun 1984 tentang Sumber Pendapatan dan Kekayaan Desa, Pengurusan dan Pengawasannya ( Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1984 Nomor 113 Seri D Nomor 112);
+8. Peraturan Daerah Nomor 3 Tahun 1984 tentang Pungutan Desa ( Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1984 Nomor 114 Seri D Nomor 113);
+9. Peraturan Daerah Nomor 4 Tahun 1984 tentang Penyusunan Anggaran Penerimaan dan Pengeluaran Keuangan Desa ( Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1984 Nomor 115 Seri D Nomor 114);
+10. Peraturan Daerah Nomor 5 Tahun 1984 tentang Kota-kota Lain Diluara Wilayah Ibukota Provinsi Daerah Tingkat I Bali, Ibukota Kabupaten dan Kota Administratif dapat dibentuk Kota Kelurahan ( Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1984 Nomor 116 Seri D Nomor 115);
+11. Peraturan Daerah Nomor 12 Tahun 1984 tentang Pakaian Dinas dan Tanda Jabatan Kepala Desa/Kepala Kelurahan ( Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1985 Nomor 10 Seri D Nomor 10);
+12. Peraturan Daerah Nomor 13 Tahun 1984 tentang Pengawasan Atas Jalannya Penyelenggaraan Pemerintahan Desa/Pemerintahan Kelurahan ( Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1985 Nomor 11 Seri D Nomor 11);
+13. Peraturan Daerah Nomor 4 Tahun 1985 tentang Usaha Losmen (Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1986 Nomor 123 Seri D Nomor 132 sebagaimana telah diubah dengan Peraturan Daerah Nomor 6 Tahun 1988 (Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1988 Nomor 125 Seri D Nomor 124);
+14. Peraturan Daerah Nomor 3 Tahun 1988 tentang Usaha Rumah Makan ( Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1988 Nomor 126 Seri D Nomor 125);
+15. Peraturan Daerah Nomor 11 Tahun 1989 tentang Bar (Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1990 Nomor 212 Seri D Nomor 211);
+16. Peraturan Daerah Nomor 12 Tahun 1989 tentang Usaha Penginapan Remaja (Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1991 Nomor 82 Seri D Nomor 251);
+17. Peraturan Daerah Nomor 13 Tahun 1989 tentang Usaha Pondok Wisata ( Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1990 Nomor 254 Seri D Nomor 251);
+18. Peraturan Daerah Nomor 14 Tahun 1989 tentang Penyerahan Sebagian Urusan Pemerintah Provinsi Bali dibidang Kepariwisataan kepada Kabupaten Daerah Tingkat II se Bali ( Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1990 Nomor 245 Seri D Nomor 242);
+19. Peraturan Daerah Nomor 15 Tahun 1989 tentang Penyerahan Sebagian Urusan Pemerintah Provinsi Bali dibidang Pertanian kepada Kabupaten Daerah Tingkat II se Bali ( Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1990 Nomor 252 Seri D Nomor 249);
+20. Peraturan Daerah Nomor 16 Tahun 1989 tentang Penyerahan Sebagian Urusan Pemerintah Provinsi Bali dibidang Perkebunan kepada Kabupaten Daerah Tingkat II se Bali ( Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1990 Nomor 247 Seri D Nomor 244);
+21. Peraturan Daerah Nomor 17 Tahun 1989 tentang Penyerahan Sebagian Urusan Pemerintah Provinsi Bali dibidang Perikanan kepada Kabupaten Daerah Tingkat II se Bali ( Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1990 Nomor 246 Seri D Nomor 243);
+22. Peraturan Daerah Nomor 18 Tahun 1989 tentang Penyerahan Sebagian Urusan Pemerintah Provinsi Bali dibidang Peternakan kepada Kabupaten Daerah Tingkat II se Bali ( Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1990 Nomor 267 Seri D Nomor 264);
+23. Peraturan Daerah Nomor 2 Tahun 1991 tentang Penyisihan Penerimaan PBB Bagian Pemerintah Propinsi Daerah Tingkat I Bali serta Pemberian Sumbangan Pembangunan Kepada Pemerintah Desa dan Pemerintah Kelurahan ( Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1991 Nomor 240 Seri D Nomor 239);
+24. Peraturan Daerah Nomor 5 Tahun 1991 tentang Pengelolaan Keuangan Pemerintah Kelurahan ( Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1991 Nomor 95 Seri D Nomor 92);
+25. Peraturan Daerah Nomor 11 Tahun 1991 tentang Penyusunan Anggaran Penerimaan dan Pengeluaran Keuangan Desa (Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1992 Nomor 96 Seri D nomor 93);
+26. Peraturan Daerah Nomor 4 Tahun 1992 tentang Ketentuan Penyelenggaraan Kesejahteraan Pekerja pada Perusahaan di Wilayah Bali (Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1992 Nomor 386 Seri C Nomor 3);
+27. Peraturan Daerah Nomor 8 Tahun 1991 tentang Pengujian Berkala Kendaraan Berotor (Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1994 Nomor 174 Seri B Nomor 1);
+28. Peraturan Daerah Nomor 8 Tahun 1996 tentang Penyerahan Sebagian Urusan Pemerintah Provinsi Bali dibidang Tenaga Kerja kepada Kabupaten Daerah Tingkat II se Bali kecuali Kabupaten Badung (Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 2000 Nomor 30 Seri D Nomor 30);
+29. Peraturan Daerah Nomor 11 Tahun 1996 tentang Pemeriksaan dan Pengujian Mutu Hasil Perikanan untuk Ekspor di Propinsi Daerah Tingkat I Bali (Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1997 Nomor 312 Seri B Nomor 1);
+30. Peraturan Daerah Nomor 8 Tahun 1997 tentang Tata Cara Pencalonan, Pemilihan, Pengangkatan dan Pemberhentian Desa (Lembaran Daerah Propinsi Daerah Tingkat I Bali Tahun 1998 Nomor 166 Seri D Nomor 163);
+31. Peraturan Daerah Nomor 3 Tahun 1997 tentang Penyerahan Sebagian Urusan Pemerintah Provinsi Bali dibidang Lalu Lintas dan Angkutan Jalan, Pekerjaan Umum, Pariwisata, Kebudayaan, Perikanan, Kehutanan kepada Daerah Tingkat II se Bali kecuali Kabuapten Daerah Tingkat II Badung (Lembaran Daerah Propinsi Bali Tahun 1998 Nomor 31 Seri C Nomor 31);
+32. Peraturan Daerah Nomor 9 Tahun 1998 tentang Pengaturan, Perijinan, Pengawasan, dan Pengendalian Pengambilan Air Bawah Tanah dan Air Permukaan (Lembaran Daerah Propinsi Bali Tahun 2000 Nomor 35 Seri C Nomor 4);
+33. Peraturan Daerah Nomor 5 Tahun 1999 tentang Retribusi Izin Peruntukkan Penggunaan Tanah (Lembaran Daerah Propinsi Bali Tahun 1999 Nomor 175 Seri B Nomor 1);
+34. Peraturan Daerah Nomor 5 Tahun 2000 tentang Retribusi Pasar Grosir Penyelenggaran Pelelangan Ikan (Lembaran Daerah Propinsi Bali Tahun 2000 Nomor 83 Seri D Nomor 3);
+35. Peraturan Daerah Nomor 11 Tahun 2001 tentang Penimbangan Kendaraan Angkutan Barang (Lembaran Daerah Propinsi Bali Tahun 2001 Nomor 80 Seri B Nomor 3);
