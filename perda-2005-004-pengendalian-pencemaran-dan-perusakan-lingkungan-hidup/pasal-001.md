@@ -1,0 +1,20 @@
+# Pasal 1
+Dalam Peraturan Daerah ini, yang dimaksud dengan :
+1. Provinsi adalah provinsi Bali 2. Gubernur adalah Gubernur Bali 3. Lingkungan Hidup adalah kesatuan ruang dengan semua benda, daya, keadaan, dan mahluk hidup, termasuk manusia dan perilakunya, yang mempengaruhi kelangsungan peri kehidupan dan kesejahteraan manusia serta mahluk hidup lain.
+4. Pengelolaan lingkungan hidup adalah upaya terpadu untuk melestarikan fungsi lingkungan yang meliputi kebijaksanaan penataan, pemanfaatan, pengembangan, pemeliharaan, pemulihan, penagwasan dan pengendalian lingkungan hidup.
+5. Pencemaran lingkungan hidup adalah masuknya atau dimasukkannya makhluk hidup, zat energi dan/atau komponen lain ke dalam lingkungan hidup oleh kegiatan manusia sehingga kualitasnya turun sampai ke tingkat tertentu yang menyebabkan lingkungan hidup tidak berfungsi sesuai dengan peruntukannya 6. Perusakan lingkungan hidup adalah tindakan yang menimbulkan perubahan langsung atau tidak langsung terhadap sifat fisik dan/atau hayatinya yang menyebabkan lingkungan hidup tidak berfungsi lagi dalam menunjang pembangunan berkelanjutan.
+7. Pengendalian adalah upaya pencegahan, pengawasan, penanggulangan, dan pemulihan.
+8. Pencegahan pencemaran dan/atau perusakan lingkungan hidup adalah upaya untuk mempertahankan fungsi lingkungan hidup mencakup daya dukung dan daya tampung melalui cara-cara yang tidak memberi peluang berlangsungnya pencemaran dan/atau kerusakan lingkungan hidup.
+9. Pengawasan adalah upaya yang meliputi pemantauan penataan persyaratan, ketentuan teknis administrasi oleh penghasil, pemanfaat, pengumpul, pengelola limbah, dan penimbun limbah B3.
+10. Penanggulangan pencemaran dan/atau kerusakan lingkungan hidup adalah upaya untuk menghentikan meluas dan meningkatnya pencemaran dan/atau kerusakan lingkungan hidup serta dampaknya yang diakibatkan oleh suatu usaha dan/atau kegiatan.
+11. Pemulihan pencemaran dan/atau kerusakan lingkungan adalah upaya untuk mengembalikan fungsi lingkungan yang berkaitan dengan pencemaran dan/atau kerusakan lingkungan sesuai dengan daya dukungnya.
+12. Daya tampung lingkungan adalah kemampuan lingkungan hidup untuk menyerap zat, energi dan/atau komponen lain yang masuk atau dimasukkan ke dalamnya.
+13. Daya dukung lingkungan adalah kemampuan lingkungan hidup untuk mendukung perikehidupan manusia dan makhluk hidup lainnya.
+14. Baku mutu lingkungan adalah ukuran batas atau kadar makhluk hidup, zat energi atau komponen lain yang ada atau harus ada dan/atau unsur pencemaran yang ditenggang keberadannya dalam suatu sumber daya tertentu sebagai unsur lingkungan hidup.
+15. Kriteria baru kerusakan lingkungan hidup adalah ukuran batas perubahan sifat fisik dan/atau hayati lingkungan hidup yang dapat ditenggang.
+16. Dampak lingkungan hidup adalah pengaruh perubahan pada lingkungan hidup yang diakibatkan oleh suatu usaha dan/atau kegiatan.
+17. Limbah adalah sisa suatu kegiatan dan/atau usaha yang meliputi limbah padat organik dan anorganik, limbah cair, emisi gas buang kendaraan bermotor, emisi sumber tidak bergerak, getaran, bau dan kebisingan.
+18. Limbah Bahan Berbahaya dan Beracun, selanjutnya disebut B3, adalah sisa suatu usaha dan/atau kegiatan yang mengandung bahan berbahaya dan/atau beracun yang karena sifat dan/atau konsentrasinya dan/atau jumlahnya, baik secara langsung maupun tidak langsung, dapat mencemarkan dan/atau merusakkan lingkungan hidup, dan/atau dapat membayakan lingkungan hidup, kesehatan, kelangsungan hidup manusia serta mahluk hidup lainnya.
+19. Pengelolaan limbah adalah rangkaian kegiatan yang mencakup identifikasi, verifikasi, pengelompokan, pengolahan, pengumpulan, penyimpanan, pengangkutan, pemanfaatan, pembuangan, dan penimbunan limbah.
+20. Penanggung jawab Usaha dan/atau kegiatan selanjutnya disebut Penanggung jawab Usaha, adalah orang yang melakukan kegiatan yang menghasilkan limbah yang mencemari dan/atau merusak lingkungan hidup.
+21. Tindakan tertentu adalah upaya teknis yang harus dilakukan untuk menghentikan sumber pencemaran dan/atau perusakan serta penanggulangan akibat yang ditimbulkannya.
