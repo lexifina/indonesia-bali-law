@@ -1,0 +1,4 @@
+# Pasal 6
+(1) Tuntutan ganti kerugian keuangan Daerah dilakukan berdasarkan perhitungan yang diberikan oleh pegawai atau pejabat lain yang bersangkutan kepada Gubernur.
+(2) Setiap pegawai atau pejabat lain bertanggungjawab atas kerugian keuangan Daerah yang terjadi dalam pengurusannya, kecuali apabila yang bersangkutan dapat memberikan pembuktian bahwa ia bebas dari kesalahan atau kelalaian atas kerugian keuangan Daerah.
+(3) Jika dalam pemeriksaan oleh Aparat Pengawas sebagaimana dimaksud dalam Pasal 4 ayat (3) dan ayat (4) terbukti kerugian keuangan Daerah dilakukan oleh beberapa pegawai, pejabat lain atau bersama atasan langsung, maka kepada yang bersangkutan dikenai tanggungjawab renteng sesuai dengan bobot keterlibatan dan tanggungjawabnya, urutan inisiatif dan kelalaian atau kesalahannya.
