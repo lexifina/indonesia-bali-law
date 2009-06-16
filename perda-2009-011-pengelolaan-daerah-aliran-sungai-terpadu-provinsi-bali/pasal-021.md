@@ -1,0 +1,2 @@
+# Pasal 21
+Persyaratan kelestarian ekosistem dalam Pengelolaan DAS Terpadu sebagaimana dimaksud dalam Pasal 19 huruf b, harus dipenuhi untuk suatu kegiatan dan usaha pada kawasan budidaya dan kawasan lindung, baik pada bagian hulu, pada bagian tengah maupun pada bagian hilir DAS, agar menghasilkan nilai sinergi terbesar bagi kesejahteraan masyarakat serta menjamin daya dukung wilayah DAS dan daya tampung lingkungan.

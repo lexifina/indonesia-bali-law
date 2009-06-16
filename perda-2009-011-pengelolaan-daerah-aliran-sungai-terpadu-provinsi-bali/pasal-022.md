@@ -1,0 +1,2 @@
+# Pasal 22
+Pola pengelolaan hutan, lahan dan air dalam Pengelolaan DAS Terpadu sebagaimana dimaksud dalam Pasal 19 huruf c, harus dipenuhi untuk suatu kegiatan dan usaha pada kawasan budidaya dan kawasan lindung, baik pada bagian hulu, pada bagian tengah maupun pada bagian hilir DAS dengan tujuan untuk mewujudkan keserasian, keselarasan dan keseimbangan hubungan antara ketersediaan dan pendaya-gunaan sumberdaya alam dan sumberdaya buatan dalam ekosistem DAS dalam rangka meningkatkan daya guna dan hasil guna secara berkelanjutan.
