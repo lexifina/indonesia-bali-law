@@ -1,0 +1,2 @@
+# Pasal 25
+Dukungan kelembagaan sebagaimana dimaksud dalam Pasal 15 ayat (2) huruf i, dilaksanakan untuk mengembangkan dan meningkatkan fungsi dekopinwil, inkubator, lembaga layanan pengembangan usaha, konsultan keuangan mitra bank, Lembaga Penjaminan Daerah, Lembaga Pembiayaan Daerah, dan lembaga profesi sejenis lainnya sebagai lembaga pendukung pengembangan Koperasi dan UMKM di daerah, sesuai ketentuan peraturan perundang-undangan.
