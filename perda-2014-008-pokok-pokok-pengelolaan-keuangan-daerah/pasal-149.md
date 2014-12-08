@@ -1,0 +1,4 @@
+# Pasal 149
+(1) PPKD menyampaikan laporan realisasi semester pertama APBD berdasarkan laporan realisasi semester pertama anggaran pendapatan dan belanja SKPD sebagaimana dimaksud dalam Pasal 147 ayat (3) paling lambat minggu kedua bulan Juli tahun anggaran berkenaan kepada Sekretaris Daerah selaku koordinator pengelolaan keuangan daerah.
+(2) Koordinator pengelolaan keuangan daerah menyampaikan laporan realisasi sebagaimana dimaksud pada ayat (1) kepada Gubernur paling lambat minggu ketiga bulan Juli tahun anggaran berkenaan untuk ditetapkan sebagai laporan realisasi semester pertama APBD dan prognosis untuk 6 (enam) bulan berikutnya.
+(3) Laporan realisasi semester pertama APBD dan prognosis untuk 6 (enam) bulan berikutnya sebagaimana dimaksud pada ayat (2) disampaikan kepada DPRD paling lambat akhir bulan Juli tahun anggaran berkenaan.

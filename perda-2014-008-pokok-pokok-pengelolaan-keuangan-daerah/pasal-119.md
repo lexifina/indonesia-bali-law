@@ -1,0 +1,4 @@
+# Pasal 119
+(1) RKA-SKPD yang memuat program dan kegiatan baru dan DPPA-SKPD yang akan dianggarkan dalam perubahan APBD yang telah disusun oleh SKPD disampaikan kepada PPKD untuk dibahas lebih lanjut oleh TAPD.
+(2) Pembahasan oleh TAPD dilakukan untuk menelaah kesesuaian antara RKA-SKPD dan DPPA-SKPD sebagaimana dimaksud pada ayat (1) dengan Kebijakan Umum Perubahan APBD serta PPA Perubahan APBD, prakiraan maju yang direncanakan atau yang telah disetujui dan dokumen perencanaan Iainnya, serta capaian kinerja, indikator kinerja, standar analisis belanja, standar satuan harga, dan standar pelayanan minimal.
+(3) Dalam hal hasil pembahasan RKA-SKPD dan DPPA-SKPD, memuat program dan kegiatan yang akan dianggarkan dalam Perubahan APBD terdapat ketidaksesuaian dengan ketentuan sebagaimana dimaksud pada ayat (2), SKPD melakukan penyempurnaan.

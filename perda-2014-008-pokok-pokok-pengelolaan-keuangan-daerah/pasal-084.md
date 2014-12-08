@@ -1,0 +1,5 @@
+# Pasal 84
+(1) Dasar pengeluaran anggaran belanja tidak terduga yang dianggarkan dalam APBD untuk mendanai tanggap darurat, keadaan darurat, penanggulangan bencana alam dan/atau bencana sosial, termasuk pengembalian atas kelebihan penerimaan daerah tahun-tahun sebelumnya yang telah ditutup ditetapkan dengan Keputusan Gubernur dan diberitahukan kepada DPRD paling lama 1 (satu) bulan terhitung sejak keputusan dimaksud ditetapkan.
+(2) Pengeluaran belanja tidak terduga sebagaimana dimaksud pada ayat (1) berdasarkan kebutuhan yang diusulkan dari instansi/lembaga berkenaan setelah mempertimbangkan efisiensi dan efektifitas serta menghindari adanya tumpang tindih pendanaan terhadap kegiatan-kegiatan yang telah didanai dari anggaran pendapatan dan belanja negara.
+(3) Pimpinan instansi/lembaga penerima belanja tidak terduga bertanggungjawab atas penggunaan belanja tersebut dan menyampaikan laporan realisasi penggunaan kepada atasan langsung dan Gubernur.
+(4) Ketentuan mengenai tata cara pelaksanaan dan pertanggungjawaban belanja tidak terduga sebagaimana dimaksud pada ayat (2) diatur lebih lanjut dalam Peraturan Gubernur.

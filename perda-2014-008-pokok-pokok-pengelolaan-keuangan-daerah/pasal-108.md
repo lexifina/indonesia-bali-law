@@ -1,0 +1,9 @@
+# Pasal 108
+(1) Perubahan APBD disebabkan perkembangan yang tidak sesuai dengan asumsi KUA sebagaimana dimaksud dalam Pasal 107 ayat (1) huruf a, dapat berupa terjadinya pelampauan atau tidak tercapainya proyeksi pendapatan daerah, alokasi belanja daerah, sumber dan penggunaan pembiayaan yang semula ditetapkan dalam KUA.
+(2) Gubernur memformulasikan hal-hal yang mengakibatkan terjadinya Perubahan APBD sebagaimana dimaksud dalam Pasal 107 ayat (1) huruf a, ke dalam Rancangan Kebijakan Umum Perubahan APBD serta PPAS Perubahan APBD.
+(3) Dalam Rancangan Kebijakan Umum Perubahan APBD dan PPAS Perubahan APBD sebagaimana dimaksud pada ayat (2) disajikan secara lengkap dengan penjelasannya mengenai:
+a. perbedaan asumsi dengan KUA yang ditetapkan sebelumnya;
+b. program dan kegiatan yang dapat diusulkan untuk ditampung dalam Perubahan APBD dengan mempertimbangkan sisa waktu pelaksanaan APBD tahun anggaran berkenaan; dan c. capaian target kinerja program dan kegiatan yang harus dikurangi dalam Perubahan APBD apabila asumsi KUA tidak tercapai; dan d. capaian target kinerja program dan kegiatan yang harus ditingkatkan dalam Perubahan APBD apabila melampaui asumsi KUA.
+(4) Rancangan Kebijakan Umum Perubahan APBD dan PPAS Perubahan APBD sebagaimana dimaksud pada ayat (2) disampaikan kepada DPRD paling lambat minggu pertama bulan Agustus dalam tahun anggaran berkenaan.
+(5) Rancangan Kebijakan Umum Perubahan APBD dan PPAS Perubahan APBD sebagaimana dimaksud pada ayat (4), setelah dibahas selanjutnya disepakati menjadi kebijakan umum Perubahan APBD serta PPAS Perubahan APBD paling lambat minggu kedua bulan Agustus tahun anggaran berkenaan.
+(6) Dalam hal Persetujuan DPRD terhadap Rancangan Peraturan Daerah tentang Perubahan APBD diperkirakan pada akhir bulan September tahun anggaran berkenaan, agar dihindari adanya penganggaran kegiatan pembangunan fisik di dalam Rancangan Peraturan Daerah tentang Perubahan APBD.
