@@ -1,0 +1,4 @@
+# Pasal 17
+Pada saat Peraturan Daerah ini mulai berlaku:
+1. Peraturan Daerah Provinsi Bali Nomor 4 Tahun 2011 tentang Organisasi dan Tata Kerja Perangkat Daerah (Lembaran Daerah Provinsi Bali Tahun 2011 Nomor 4, Tambahan Lembaran Daerah Provinsi Bali Nomor 4);
+2. Peraturan Daerah Provinsi Bali Nomor 4 Tahun 2013 tentang Perubahan Atas Peraturan Daerah Provinsi Bali Nomor 4 Tahun 2011 tentang Organisasi dan Tata Kerja Perangkat Daerah (Lembaran Daerah Provinsi Bali Tahun 2013 Nomor 4, Tambahan Lembaran Daerah Provinsi Nomor 4); dan 3. Peraturan Daerah Provinsi Bali Nomor 4 Tahun 2015 tentang Perubahan Kedua Atas Peraturan Daerah Provinsi Bali Nomor 4 Tahun 2011 tentang Organisasi dan Tata Kerja Perangkat Daerah (Lembaran Daerah Provinsi Bali Tahun 2015 Nomor 4, Tambahan Lembaran Daerah Provinsi Bali Nomor 4), dicabut dan dinyatakan tidak berlaku.
