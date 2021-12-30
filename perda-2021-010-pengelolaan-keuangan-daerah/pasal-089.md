@@ -1,0 +1,2 @@
+# Pasal 89
+Dalam hal Gubernur dan DPRD tidak menyepakati bersama rancangan KUA dan rancangan PPAS sebagaimana dimaksud dalam Pasal 88 ayat (1), paling lama 6 (enam) minggu sejak rancangan KUA dan rancangan PPAS disampaikan kepada DPRD, Gubernur menyampaikan Rancangan Perda tentang APBD kepada DPRD berdasarkan RKPD, rancangan KUA, dan rancangan PPAS yang disusun Gubernur, untuk dibahas dan disetujui bersama antara Gubernur dengan DPRD sesuai dengan ketentuan Peraturan Perundang-undangan.

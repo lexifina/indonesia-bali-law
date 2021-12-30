@@ -1,0 +1,2 @@
+# Pasal 45
+Hibah sebagaimana dimaksud dalam Pasal 44 huruf a, merupakan bantuan berupa uang, barang, dan/atau jasa yang berasal dari pemerintah pusat, pemerintah daerah lain, masyarakat, dan badan usaha dalam negeri atau luar negeri yang tidak mengikat untuk menunjang peningkatan penyelenggaraan urusan pemerintahan yang menjadi kewenangan Daerah sesuai dengan ketentuan Peraturan Perundang-undangan.

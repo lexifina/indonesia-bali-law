@@ -1,0 +1,2 @@
+# Pasal 75
+Pembayaran cicilan pokok Utang sebagaimana dimaksud dalam Pasal 68 ayat (4) huruf a, digunakan untuk menganggarkan pembayaran pokok Utang yang didasarkan pada jumlah yang harus dibayarkan sesuai dengan perjanjian pinjaman dan pelaksanaannya merupakan prioritas utama dari seluruh kewajiban Pemerintah Daerah yang harus diselesaikan dalam tahun anggaran berkenaan berdasarkan perjanjian pinjaman.
