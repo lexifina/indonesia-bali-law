@@ -1,0 +1,6 @@
+# Pasal 81
+(1) Semua hak, kewajiban, perlengkapan, dan kekayaan serta kepegawaian Perusahaan Daerah Bali yang dibentuk dengan Peraturan Daerah Tingkat I Bali Nomor 2 Tahun 1974 tentang Perusahaan Daerah sebagaimana telah diubah dengan Peraturan Daerah Provinsi Bali Nomor 05 Tahun 1985 tentang Perubahan Pertama Peraturan Daerah Tingkat I Bali Nomor 2 Tahun 1974 tentang Perusahaan Daerah, menjadi hak, kewajiban, perlengkapan, dan kekayaan serta kepegawaian Perumda Kerta Bali Saguna berdasarkan Peraturan Daerah ini.
+(2) Segala bentuk perjanjian-perjanjian dan aksi Perusda Bali dengan pihak ketiga maupun persetujuan oleh Dewan Pengawas dan KPM berdasarkan Peraturan Daerah Tingkat I Bali Nomor 2 Tahun 1974 tentang Perusahaan Daerah sebagaimana telah diubah dengan Peraturan Daerah Provinsi Bali Nomor 05 Tahun 1985 tentang Perubahan Pertama Peraturan Daerah Tingkat I Bali Nomor 2 Tahun 1974 tentang Perusahaan Daerah tetap berlaku dan mengikat pada Perumda Kerta Bali Saguna berdasarkan Peraturan Daerah ini.
+(3) Periodesasi Jabatan Dewan Pengawas dan Direksi Perusda Bali yang ditetapkan sebelum berlakunya Perda ini tetap berlaku sampai dengan berakhirnya periodesasi jabatan dimaksud.
+BAB XVIII
+KETENTUAN PENUTUP
