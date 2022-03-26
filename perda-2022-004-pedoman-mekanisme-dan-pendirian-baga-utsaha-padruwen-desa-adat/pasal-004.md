@@ -1,0 +1,2 @@
+# Pasal 4
+Pengaturan BUPDA bertujuan agar pengelolaan BUPDA dilakukan secara profesional dengan tata kelola berdasarkan hukum adat dan modern yang menerapkan prinsip-prinsip nilai adat, tradisi, budaya, dan kearifan lokal Bali, tata kelola usaha yang baik, kehati-hatian, dan praktek pengelolaan usaha yang terbaik dan terkini agar BUPDA tumbuh dan berkembang secara sehat, kuat, bermanfaat, dan berkelanjutan.
