@@ -1,0 +1,2 @@
+# Pasal 13
+Jenis objek penerimaan komisi, potongan, atau bentuk lain sebagaimana dimaksud dalam Pasal 3 huruf i, terdiri dari hasil penerimaan komisi, potongan atau bentuk lain sebagai akibat penjualan, tukar-menukar, hibah, asuransi, dan/atau pengadaan barang dan jasa termasuk penerimaan atau penerimaan lain sebagai akibat penyimpanan uang pada bank, penerimaan dari hasil pemanfaatan barang daerah atau dari kegiatan lainnya merupakan pendapatan daerah.
