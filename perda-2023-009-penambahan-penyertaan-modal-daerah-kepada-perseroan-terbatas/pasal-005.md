@@ -1,0 +1,9 @@
+# Pasal 5
+(1) Penambahan Penyertaan Modal Daerah kedalam modal saham PT. Penjaminan Kredit Daerah Provinsi Bali berupa uang dan pemindahtanganan atas Barang Milik Daerah Pemerintah Provinsi dengan jumlah keseluruhan Rp62.846.200.000,00 (enam puluh dua miliar delapan ratus empat puluh enam juta dua ratus ribu rupiah).
+(2) Penambahan Penyertaan Modal Daerah kepada PT. Penjaminan Kredit Daerah Provinsi Bali berupa uang sebagaimana dimaksud pada ayat (1), sebesar Rp45.000.000.000,00 (empat puluh lima miliar rupiah).
+(3) Penambahan Penyertaan Modal Daerah berupa uang sebagaimana dimaksud pada ayat (2), dengan rincian sebagai berikut:
+a. sebesar Rp7.000.000.000 (tujuh miliar rupiah) dilaksanakan pada Tahun Anggaran 2024; dan b. sebesar Rp38.000.000.000 (tiga puluh delapan miliar rupiah) dilaksanakan pada Tahun Anggaran 2025.
+(4) Penambahan Penyertaan Modal Daerah kepada PT.
+Penjaminan Kredit Daerah Provinsi Bali berupa pemindahtanganan sebagaimana dimaksud pada ayat (1) sebesar Rp17.846.200.000,00 (tujuh belas miliar delapan ratus empat puluh enam juta dua ratus ribu rupiah) atas Barang Milik Daerah Pemerintah Provinsi terdiri dari:
+a. 1 (satu) bidang tanah yang terletak di Jalan Surapati Nomor 8 Denpasar, Provinsi Bali sesuai dengan Sertipikat Hak Pakai (SHP) Nomor 36 tanggal 6 Januari 2005, seluas 967 m 2 (sembilan ratus enam puluh tujuh meter pesegi), dengan nilai sebesar Rp17.406.000.000,00 (tujuh belas miliar empat ratus enam juta rupiah); dan b. 1 (satu) unit bangunan yang terletak di Jalan Surapati Nomor 8 Denpasar, Provinsi Bali seluas 531,2 m 2 (lima ratus tiga puluh satu koma dua meter persegi) dengan nilai Rp440.200.000,00 (empat ratus empat puluh juta dua ratus ribu rupiah).
+(5) Penambahan Penyertaan Modal Daerah berupa pemindahtanganan atas Barang Milik Daerah Pemerintah Provinsi sebagaimana dimaksud pada ayat (4), dilaksanakan pada Tahun Anggaran 2023.
