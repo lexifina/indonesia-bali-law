@@ -1,0 +1,27 @@
+# Pasal 1
+Dalam Peraturan Daerah ini, yang dimaksudkan dengan:
+1. Daerah adalah Provinsi Bali.
+2. Pemerintah Daerah adalah Gubernur sebagai unsur penyelenggara Pemerintahan Daerah yang memimpin pelaksanaan urusan pemerintahan yang menjadi kewenangan daerah otonom.
+3. Gubernur adalah Gubernur Bali.
+4. Pemerintah Kabupaten/Kota adalah Pemerintah Kabupaten/Kota dalam wilayah Provinsi.
+5. Kabupaten/Kota adalah Kabupaten/Kota dalam wilayah Provinsi.
+6. Desa adalah desa dan desa adat atau yang disebut dengan nama lain, yaitu kesatuan masyarakat hukum yang memiliki batas wilayah yang berwenang untuk mengatur dan mengurus urusan pemerintahan, kepentingan masyarakat di wilayah Provinsi Bali berdasarkan prakarsa masyarakat, hak asal usul, dan/atau hak tradisional yang diakui dan dihormati dalam sistem pemerintahan Negara Kesatuan Republik Indonesia 7. Perangkat Daerah adalah unsur pembantu Gubernur dan Dewan Perwakilan Rakyat Daerah dalam penyelenggaraan urusan pemerintahan yang menjadi kewenangan Provinsi.
+8. Menteri adalah menteri yang menyelenggarakan urusan pemerintahan di bidang Peternakan 9. Peternakan adalah segala urusan yang berkaitan dengan sumber daya fisik, benih, bibit, bakalan, pakan, alat dan mesin Peternakan, budi daya ternak, panen, pascapanen, pengolahan, pemasaran, pengusahaan, pembiayaan, serta sarana dan prasarana.
+10. Peternak adalah perorangan warga negara Indonesia atau korporasi yang melakukan usaha Peternakan.
+11. Perlindungan Peternak adalah segala upaya untuk membantu Peternak dalam menghadapi permasalahan kesulitan memperoleh prasarana dan sarana produksi, kepastian usaha, risiko harga, kegagalan panen, praktik ekonomi biaya tinggi, dan perubahan iklim 12. Pemberdayaan Peternak adalah segala upaya untuk meningkatkan kemampuan Peternak untuk melaksanakan usaha ternak yang lebih baik melalui pendidikan dan pelatihan, penyuluhan dan pendampingan, pengembangan sistem dan sarana pemasaran hasil Peternakan, konsolidasi dan jaminan luasan lahan Peternakan, kemudahan akses ilmu pengetahuan, teknologi dan informasi, penyediaan akses pembiayaan, serta penguatan kelembagaan Peternak.
+13. Hewan adalah binatang atau satwa yang seluruh atau sebagian dari siklus hidupnya berada di darat, air, dan/atau udara, baik yang dipelihara maupun yang di habitatnya.
+14. Kesehatan Hewan adalah segala urusan yang berkaitan dengan pelindungan sumber daya hewan, kesehatan masyarakat, dan lingkungan serta penjaminan keamanan produk hewan, kesejahteraan hewan, dan peningkatan akses pasar untuk mendukung kedaulatan, kemandirian, dan ketahanan pangan asal hewan.
+15. Ternak adalah hewan peliharaan yang produknya diperuntukan sebagai penghasil pangan, bahan baku industri, jasa, dan/atau hasil ikutannya yang terkait dengan Peternakan.
+16. Usaha Ternak adalah kegiatan yang menghasilkan produk dan jasa yang menunjang usaha budi daya ternak.
+17. Masyarakat adalah perseorangan, kelompok, badan hukum atau usaha, dan lembaga atau organisasi yang kegiatannya di bidang Peternakan, termasuk masyarakat hukum adat dan masyarakat ahli, yang berkepentingan dengan perlindungan dan pemberdayaan Peternak.
+18. Komoditas Peternakan adalah hasil dari usaha ternak yang dapat diperdagangkan, disimpan, dan/atau dipertukarkan.
+19. Kelembagaan Peternak adalah lembaga yang ditumbuhkembangkan dari, oleh, dan untuk Peternak guna memperkuat dan memperjuangkan kepentingan Peternak.
+20. Kelompok Peternak adalah kumpulan Peternak yang dibentuk atas dasar kesamaan kepentingan, kesamaan kondisi lingkungan sosial, ekonomi, sumber daya;
+kesamaan komoditas; dan keakraban untuk meningkatkan serta mengembangkan usaha anggota.
+21. Gabungan Kelompok Peternak adalah kumpulan beberapa kelompok ternak yang bergabung dan bekerjasama untuk meningkatkan skala ekonomi dan efisiensi usaha.
+22. Kelembagaan Ekonomi Peternak adalah lembaga yang melaksanakan kegiatan usaha ternak yang dibentuk oleh, dari, dan untuk Peternak, guna meningkatkan produktivitas dan efisiensi usaha ternak, baik yang berbadan hukum maupun yang tidak berbadan hukum.
+23. Lembaga Pembiayaan adalah badan usaha yang melakukan kegiatan pembiayaan dalam bentuk penyediaan dana atau barang modal untuk memfasilitasi serta membantu Peternak dalam melakukan usaha ternak.
+24. Asuransi Peternakan adalah perjanjian antara Peternak dan pihak perusahaan asuransi untuk mengikatkan diri dalam pertanggungan risiko usaha ternak.
+25. Bibit Hewan adalah hewan yang mempunyai sifat unggul dan mewariskan serta memenuhi persyaratan tertentu untuk dikembangbiakkan.
+26. Badan Usaha Milik Daerah, yang selanjutnya disingkat BUMD adalah badan usaha yang seluruh atau sebagian besar modalnya dimiliki oleh Provinsi Bali 27. Badan Usaha Milik Peternak adalah badan usaha baik yang berbadan hukum maupun tidak berbadan hukum yang dibentuk oleh, dari, dan untuk Peternak melalui Gabungan Kelompok Ternak penyertaan modal yang seluruhnya dimiliki oleh Gabungan Kelompok Ternak 28. Persaingan Usaha Tidak Sehat adalah persaingan antar pelaku usaha dalam menjalankan kegiatan produksi dan atau pemasaran barang atau jasa yang dilakukan dengan cara tidak jujur atau melawan hukum atau menghambat persaingan usaha.
+29. Penyidik Pegawai Negeri Sipil adalah Pejabat Pegawai Negeri Sipil tertentu yang berdasarkan peraturan perundang-undangan ditunjuk selaku Penyidik dan mempunyai wewenang untuk melakukan penyidikan tindak pidana dalam lingkup undang-undang yang menjadi dasar hukumnya masing-masing.
