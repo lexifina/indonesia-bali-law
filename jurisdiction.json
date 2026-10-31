@@ -1,0 +1,8 @@
+{
+  "path": "id-ba",
+  "code": "ID-BA",
+  "name": "Bali (Indonesia)",
+  "level": "country",
+  "repo": "https://github.com/lexifina/indonesia-bali-law",
+  "build": "built: Peraturan Daerah (Perda) of Provinsi Bali as enacted, Indonesian text, from JDIH Provinsi Bali (Biro Hukum Sekretariat Daerah Provinsi Bali)"
+}
